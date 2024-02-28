@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Kszaken
+- 👀 I’m interested in: military and politics
+- 🌱 I’m currently learning: everything?
+- 💞️ I’m looking to collaborate on: nice projects
+- 📫 How to reach me: don du it broder
+- 😄 Pronouns: straight
+- ⚡ Fun fact: ...
